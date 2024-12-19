@@ -8,7 +8,7 @@ i love meeting new people on this game, so i'm always up for a chat! i don't bit
 
 <p align="center"
 
-![](https://files.catbox.moe/zm7fdi.png)
+![](https://blazblue.wiki/images/5/57/BlazBlue_Sticker_121.gif)
 
 <p align="center"
 
