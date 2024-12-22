@@ -16,4 +16,4 @@ i love meeting new people on this game, so i'm always up for a chat! i don't bit
 
 <p align="center"
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=7169cwv369woqjtfrpzgavtso&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=7295bb&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<a href="https://www.last.fm/user/valfen"><img src="https://lastfm-recently-played.vercel.app/api?user=valfen&footer_style=compact_stats&count=1&width=500&loved=true&header_style=none&bg_color=ffffff" alt="hai"></a>
