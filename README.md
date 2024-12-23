@@ -12,7 +12,8 @@ i love meeting new people on this game, so i'm always up for a chat! i don't bit
 
 <p align="center"
 
-![](https://blazblue.wiki/images/5/57/BlazBlue_Sticker_121.gif)
+![ezgif com-resize (5)](https://github.com/user-attachments/assets/81c82966-3c64-475d-83b7-beed192bacb6)
+
 
 <p align="center"
 
