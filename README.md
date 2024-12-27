@@ -1,5 +1,9 @@
 <p align="center"
 
+05:59 PM[alva and the chipmunks] ala is a biff dominating possesive alpha daddy
+
+<p align="center"
+
 hey, i'm luca! i love identity v, disgaea, blazblue & [more](https://rentry.co/killia) ♡
 
 <p align="center"
