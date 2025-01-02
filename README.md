@@ -16,7 +16,7 @@ i love meeting new people on this game, so i'm always up for a chat! i don't bit
 
 <p align="center"
 
-![ezgif com-resize (5)](https://github.com/user-attachments/assets/81c82966-3c64-475d-83b7-beed192bacb6)
+![ezgif com-resize (6)](https://github.com/user-attachments/assets/a815cb6d-bff3-42b8-bdb1-6ee6e7d70527)
 
 
 <p align="center"
