@@ -1,14 +1,10 @@
 <p align="center"
 
-05:59 PM[alva and the chipmunks] ala is a biff dominating possesive alpha daddy
+Hey, I'm Luca! I love Identity V, BlazBlue & [more](https://rentry.co/killia)!
 
 <p align="center"
 
-hey, i'm luca! i love identity v, disgaea, blazblue & [more](https://rentry.co/killia) ♡
-
-<p align="center"
-
-i love meeting new people on this game, so i'm always up for a chat! i don't bite.
+I'm always up for a chat (unless stated otherwise), so don't be afraid to talk to me! ♡
 
 <p align="center"
 
