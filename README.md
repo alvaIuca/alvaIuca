@@ -12,12 +12,11 @@ i love meeting new people on this game, so i'm always up for a chat! i don't bit
 
 <p align="center"
 
-[strawpage](https://alvaluca.straw.page/)
+[strawpage](https://alvaluca.straw.page/) ♡ [atabook](https://lucabalsa.atabook.org)
 
 <p align="center"
 
-![ezgif com-resize (6)](https://github.com/user-attachments/assets/a815cb6d-bff3-42b8-bdb1-6ee6e7d70527)
-
+![tumblr_1978ff43c4272c05e255fc50c50a6bfc_119fb7d6_250](https://github.com/user-attachments/assets/e1c3c0d9-b5ca-4076-ae21-38920fc17d00)
 
 <p align="center"
 
