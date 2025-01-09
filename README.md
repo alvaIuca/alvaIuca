@@ -1,3 +1,7 @@
+<p align="center">
+
+<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=blue">
+
 <p align="center"
 
 ![](https://64.media.tumblr.com/b5a2c5988f767e68c53a7048f9a553e0/12dc3da4b682b7cf-fa/s540x810/518560bea98fe3f009ada3444fa882ae51919cda.png)
