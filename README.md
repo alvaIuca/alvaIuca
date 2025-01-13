@@ -1,10 +1,10 @@
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=blue">
+<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=orange">
 
 <p align="center"
 
-![](https://64.media.tumblr.com/b5a2c5988f767e68c53a7048f9a553e0/12dc3da4b682b7cf-fa/s540x810/518560bea98fe3f009ada3444fa882ae51919cda.png)
+![tumblr_9fe443cd471a7cb2d01c3001846bb7fa_f98e0f37_540](https://github.com/user-attachments/assets/84acf647-68af-42a3-a31d-293416cb66fb)
 
 <p align="center"
 
@@ -20,7 +20,7 @@ I'm always up for a chat (unless stated otherwise), so don't be afraid to talk t
 
 <p align="center"
 
-![ezgif com-crop (6)](https://github.com/user-attachments/assets/a5ec3904-142c-460d-823b-fcd7312df2cf)
+![hiiiiiiiiiiii](https://github.com/user-attachments/assets/56e824c1-0d0b-47f4-b117-bb49af9d20eb)
 
 
 <p align="center"
@@ -29,4 +29,5 @@ I'm always up for a chat (unless stated otherwise), so don't be afraid to talk t
 
 <p align="center"
 
-![](https://64.media.tumblr.com/b5a2c5988f767e68c53a7048f9a553e0/12dc3da4b682b7cf-fa/s540x810/518560bea98fe3f009ada3444fa882ae51919cda.png)
+![tumblr_97dc352c527d59e2c7faf7d115f2bc2a_cb139fa5_540](https://github.com/user-attachments/assets/18d8f715-d75c-42f4-ad2f-1cfbca75cc69)
+
