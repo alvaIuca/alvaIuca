@@ -1,10 +1,11 @@
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=bab9b5">
+<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=A4C9E7">
 
 <p align="center"
 
-![tumblr_9fe443cd471a7cb2d01c3001846bb7fa_f98e0f37_540](https://github.com/user-attachments/assets/84acf647-68af-42a3-a31d-293416cb66fb)
+![tumblr_322a49841f620d6ad1a80cd8ef47c08a_bca814e1_400](https://github.com/user-attachments/assets/f370ed0b-2c3c-45d9-bf8c-5b60f6a46430)
+
 
 <p align="center"
 
@@ -16,11 +17,15 @@ I'm always up for a chat (unless stated otherwise), so don't be afraid to talk t
 
 <p align="center"
 
+I do not care for fiction/ship discourse and what people choose to do with fiction. Please do not involve me in such discourse.
+
+<p align="center"
+
 [strawpage](https://alvaluca.straw.page/) ♡ [atabook](https://lucabalsa.atabook.org)
 
 <p align="center"
 
-![hiiiiiiiiiiii](https://github.com/user-attachments/assets/56e824c1-0d0b-47f4-b117-bb49af9d20eb)
+![freakss](https://github.com/user-attachments/assets/65054f95-bea4-4246-87ff-a2e05c4728a9)
 
 
 <p align="center"
@@ -29,5 +34,5 @@ I'm always up for a chat (unless stated otherwise), so don't be afraid to talk t
 
 <p align="center"
 
-![tumblr_97dc352c527d59e2c7faf7d115f2bc2a_cb139fa5_540](https://github.com/user-attachments/assets/18d8f715-d75c-42f4-ad2f-1cfbca75cc69)
+![tumblr_322a49841f620d6ad1a80cd8ef47c08a_bca814e1_400](https://github.com/user-attachments/assets/f370ed0b-2c3c-45d9-bf8c-5b60f6a46430)
 
