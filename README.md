@@ -21,7 +21,7 @@ I do not care for fiction/ship discourse and what people choose to do with ficti
 
 <p align="center"
 
-[strawpage](https://alvaluca.straw.page/) ♡ [atabook](https://lucabalsa.atabook.org)
+[strawpage](https://alvaluca.straw.page/) ♡ [atabook](https://lucabalsa.atabook.org) ♡ [mad over my username? click this](https://files.catbox.moe/ks0nd2.webp)
 
 <p align="center"
 
