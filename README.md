@@ -1,15 +1,15 @@
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=A4C9E7">
+<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=FFD3DF">
 
 <p align="center"
 
-![tumblr_322a49841f620d6ad1a80cd8ef47c08a_bca814e1_400](https://github.com/user-attachments/assets/f370ed0b-2c3c-45d9-bf8c-5b60f6a46430)
+![](https://files.catbox.moe/g331g1.gif)
 
 
 <p align="center"
 
-Hey, I'm Luca! I love Identity V, BlazBlue & [more](https://rentry.co/killia)!
+Hey, I'm Luca! I love Identity V, BlazBlue & more!
 
 <p align="center"
 
@@ -17,7 +17,11 @@ I'm always up for a chat (unless stated otherwise), so don't be afraid to talk t
 
 <p align="center"
 
-I do not care for fiction/ship discourse and what people choose to do with fiction. Please do not involve me in such discourse.
+I do not care for fiction/ship discourse. Please do not involve me in such discourse. 
+
+<p align="center"
+
+My only DNI are those who hate Alva/Luca (it's a comfort ship, sorry!)
 
 <p align="center"
 
@@ -25,7 +29,8 @@ I do not care for fiction/ship discourse and what people choose to do with ficti
 
 <p align="center"
 
-![freakss](https://github.com/user-attachments/assets/65054f95-bea4-4246-87ff-a2e05c4728a9)
+
+![image-removebg-preview (24)](https://github.com/user-attachments/assets/019dac07-080d-4484-b35e-d1416118d441)
 
 
 <p align="center"
@@ -34,5 +39,5 @@ I do not care for fiction/ship discourse and what people choose to do with ficti
 
 <p align="center"
 
-![tumblr_322a49841f620d6ad1a80cd8ef47c08a_bca814e1_400](https://github.com/user-attachments/assets/f370ed0b-2c3c-45d9-bf8c-5b60f6a46430)
+![](https://files.catbox.moe/g331g1.gif)
 
