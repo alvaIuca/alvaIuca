@@ -1,19 +1,20 @@
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=FFD3DF">
+<img src="https://komarev.com/ghpvc/?username=alvaiuca&color=dbc286">
 
 <p align="center"
 
-<br> <sup>![](https://files.catbox.moe/g331g1.gif)
-<br>hey, i'm luca! fan of idv, blazblue & disgaea.
-<br>i consider myself friendly, so dont be afraid to talk to me!
-<br>byi, i dont care about fiction discourse. don't bring it to me. 
-<br>alvaluca haters dni please and thank you, you're not worth my time.
-<br>[strawpage](https://alvaluca.straw.page/) ♡ [atabook](https://lucabalsa.atabook.org) ♡ [mad over my username? click this](https://files.catbox.moe/ks0nd2.webp)
+<br> <sup>![](https://64.media.tumblr.com/634112220c07d3e7b50f749c05d893ed/7e2130847fc1824a-7e/s250x400/4f749a1a16f4b4d5066e686fbb9276623a503422.webp)
 <br>
-<br>![image-removebg-preview (24)](https://github.com/user-attachments/assets/019dac07-080d-4484-b35e-d1416118d441)
+<br>hey, im luca! fan of idv, blazblue & disgaea.
+<br>im a little shy but i consider myself friendly and will entertain any convo
+<br>byi... i dont care about fiction discourse. don't bring it to me. 
+<br>alvaluca haters dni yall are boring YAAAWWNNNN
+<br>[atabook](https://lucabalsa.atabook.org) ♡ [mad over my username? click this](https://files.catbox.moe/ks0nd2.webp)
 <br>
-<br>![](https://files.catbox.moe/g331g1.gif)</sup>
+<br> ![](https://files.catbox.moe/bs3f0u.png)
+<br>
+<br> <sup>![](https://64.media.tumblr.com/634112220c07d3e7b50f749c05d893ed/7e2130847fc1824a-7e/s250x400/4f749a1a16f4b4d5066e686fbb9276623a503422.webp)
 
 <p align="center"
 
