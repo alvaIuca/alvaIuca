@@ -12,7 +12,7 @@
 <br>alvaluca haters dni yall are boring YAAAWWNNNN
 <br>[atabook](https://lucabalsa.atabook.org) ♡ [mad over my username? click this](https://files.catbox.moe/ks0nd2.webp)
 <br>
-<br> ![](https://files.catbox.moe/engvjl.png)
+<br> ![](https://guiltygear.wiki.gg/images/2/27/GGXXAC%2B_Type-C_Sidebar_Ky.png?8514a0)
 <br>
 <br> <sup>![](https://64.media.tumblr.com/634112220c07d3e7b50f749c05d893ed/7e2130847fc1824a-7e/s250x400/4f749a1a16f4b4d5066e686fbb9276623a503422.webp)
 
