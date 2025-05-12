@@ -6,7 +6,7 @@
 <br><img src="https://komarev.com/ghpvc/?username=alvaiuca&color=D0455D">
 <br>hey, im luca! you'll see me in gtcs often
 <br>alvaluca haters dni yall are boring YAAAWWNNNN
-<br>[rentry](https://rentry.co/hopefree) ♡ [atabook](https://lucabalsa.atabook.org) ♡ [mad over my username? click this](https://files.catbox.moe/ks0nd2.webp)
+<br>[strawpage](https://alvaluca.straw.page/) ♡ [atabook](https://lucabalsa.atabook.org) ♡ [mad over my username? click this](https://files.catbox.moe/ks0nd2.webp)
 <br>
 <br> ![pixiv id 4865049](https://github.com/user-attachments/assets/753a0320-d88b-4927-8dbc-7e5554a288f5)
 <br>
