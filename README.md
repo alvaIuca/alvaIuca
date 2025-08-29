@@ -10,7 +10,6 @@
 <br>
 <br> <a href="https://www.last.fm/user/valfen"><img src="https://lastfm-recently-played.vercel.app/api?user=valfen&footer_style=compact_stats&count=1&width=500&loved=true&header_style=none&bg_color=000000" alt="hai"></a>
 <br>
-<br> ![](https://files.catbox.moe/q5q8u1.webp)
 
 
 <br>
